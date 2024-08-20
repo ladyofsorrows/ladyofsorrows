@@ -6,5 +6,5 @@
    she<i>they</i>  <b>3teen </b>
   <br> <a href="https://github.com/MorgottsConsort">wifey</a> <img src='https://files.catbox.moe/9b3lac.gif'>
 
-<br> <a href="https://rentry.co/metalocalypsedotcom">rentry</a>   <a href="https://metalocalypse.atabook.org/">atabook</a> <a href="https://retrospring.net/@weezerus">retro</a> <a href="https://www.last.fm/user/weezerus">lastfm</a>
+<br> <a href="https://rentry.co/metalocalypsedotcom">rentry</a>   <a href="https://metalocalypse.atabook.org/">atabook</a>
 <br> <a href="https://linktr.ee/weezerus">linktree</a>
