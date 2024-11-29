@@ -2,7 +2,7 @@
  <img src='https://files.catbox.moe/rmjhy6.gif' title='ME!!'
 
    <br>︶︶︶︶︶︶<br>
-<b>BEO(WULF)</b> ; weez<br>
+<b>BEO(WULF)</b> ; brielle<br>
    she<i>they</i>  <b>fourteen </b>
   <br> <a href="https://github.com/FatherGascoigne">the monarch</a>
 
