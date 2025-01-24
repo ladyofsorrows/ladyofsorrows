@@ -6,5 +6,5 @@
    she<i>they</i>  <b>fourteen </b>
   <br> <a href="https://github.com/FatherGascoigne">wifeyueuhh</a>
 
-<br> <a href="https://rentry.co/metalocalypsedotcom">RENTRY</a> : <a href="https://frankiero.atabook.org/">ATA</a> : <a href="https://linktr.ee/weezerus">LINKTREE</a>
+<br> <a href="https://rentry.co/frnkieroo">RENTRY</a> : <a href="https://frankiero.atabook.org/">ATA</a> : <a href="https://linktr.ee/weezerus">LINKTREE</a>
 
