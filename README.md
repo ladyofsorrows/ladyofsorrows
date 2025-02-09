@@ -2,7 +2,7 @@
  <img src='https://files.catbox.moe/o3rzbu.gif' title='boi'
 
    <br>︶︶︶︶︶︶<br>
-<b>BEO(WULF)</b> ; brielle<br>
+<b>BEO<ins>WULF<ins></b> ; frankie<br>
    she<i>they</i>  <b>fourteen </b>
   <br> <a href="https://github.com/FatherGascoigne">wifeyueuhh</a>
 
