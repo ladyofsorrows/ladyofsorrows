@@ -1,10 +1,10 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/o3rzbu.gif' title='boi'
+ <img src='https://files.catbox.moe/u3gi4x.jpg' title='boi'
 
    <br>︶︶︶︶︶︶<br>
-<b>BEO<ins>WULF<ins></b> ; frankie<br>
+<b>FRANKIE</b> ; beo<ins>wulf</ins><br>
    she<i>they</i>  <b>fourteen </b>
-  <br> <a href="https://github.com/FatherGascoigne">pansy</a>
+  <br> <a href="https://github.com/FatherGascoigne">saint</a>
 
 <br> <a href="https://lotmsmcr.straw.page/">STRAWPAGE</a> : <a href="https://mychemicalromance.atabook.org/">ATA</a> : <a href="https://rentry.co/frnkieroo">RENTRY</a>
 <br><a href="https://linktr.ee/weezerus">LINKTREE</a><br>
