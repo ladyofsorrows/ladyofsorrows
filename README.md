@@ -1,5 +1,5 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/u3gi4x.jpg' title='boi'
+ <img src='https://files.catbox.moe/bzlz4p.gif' title='boi'
 
    <br>︶︶︶︶︶︶<br>
 <b>FRANKIE</b> ; beo<ins>wulf</ins><br>
