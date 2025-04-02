@@ -4,7 +4,7 @@
    <br>︶︶︶︶︶︶<br>
 <b>FRANKIE</b> ; beo<ins>wulf</ins><br>
    she<i>they</i>  <b>fourteen </b>
-  <br> <a href="https://github.com/FatherGascoigne">saint</a>
+
  
  <a href="https://lotmsmcr.straw.page/">strawpage</a> : <a href="https://mychemicalromance.atabook.org/">ata</a> : <a href="https://rentry.co/officerard">rentry</a>
 <br><a href="https://linktr.ee/weezerus">linktree</a><br>
