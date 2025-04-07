@@ -3,7 +3,7 @@
 
    <br>︶︶︶ † ︶︶︶<br>
 <b>FRANKIE</b> ; beo<ins>wulf</ins><br>
-   she<i>they</i>  <b>fourteen </b>
+   she<i>him</i>  <b>fourteen </b>
 
  
  <a href="https://lotmsmcr.straw.page/">straw</a> : <a href="https://rentry.co/officerard">rentry</a> : <a href="https://mychemicalromance.atabook.org/">ata</a>
