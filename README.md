@@ -6,7 +6,7 @@
    she<i>him</i>  <b>fourteen </b>
 
  
- <a href="https://burnbright/">straw</a> : <a href="https://rentry.co/officerard">rentry</a> : <a href="https://mychemicalromance.atabook.org/">ata</a>
+ <a href="https://burnbright.straw.page/">straw</a> : <a href="https://rentry.co/officerard">rentry</a> : <a href="https://mychemicalromance.atabook.org/">ata</a>
 <br><a href="https://linktr.ee/weezerus">linktree</a><br>
 <br>
 <br>
