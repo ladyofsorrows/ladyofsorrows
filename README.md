@@ -2,7 +2,7 @@
  <img src='https://files.catbox.moe/cemijx.webp' title='meee'
 
    <br>︶︶︶ † ︶︶︶<br>
-<b>FRANKIE</b> ; beo<ins>wulf</ins><br>
+<b>FRANKIE</b> ; pencey<br>
    she<i>him</i>  <b>fourteen </b>
 
  
