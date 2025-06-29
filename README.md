@@ -1,8 +1,8 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/cemijx.webp' title='meee'
+ <img src='https://files.catbox.moe/t3br6l.webp' title='maya the psychic'
 
    <br>︶︶︶ † ︶︶︶<br>
-<b>FRANKIE</b> ; pencey<br>
+<b>FRANKIE</b> : pencey<br>
    she<i>him</i>  <b>fourteen </b>
 
  
