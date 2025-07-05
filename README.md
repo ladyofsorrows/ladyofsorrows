@@ -1,5 +1,5 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/ii8jku.webp' title='skylines and turnstiles'
+ <img src='https://files.catbox.moe/l1jbet.webp' title='skylines and turnstiles'
 
    <br>︶︶︶ † ︶︶︶<br>
 <b>FRANKIE</b> : pencey<br>
