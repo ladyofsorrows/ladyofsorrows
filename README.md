@@ -1,5 +1,5 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/7433p1.webp' title='this song is about being attacked by monsters'
+ <img src='https://files.catbox.moe/ii8jku.webp' title='skylines and turnstiles'
 
    <br>︶︶︶ † ︶︶︶<br>
 <b>FRANKIE</b> : pencey<br>
