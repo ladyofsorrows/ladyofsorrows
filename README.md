@@ -6,7 +6,7 @@
    she<i>him</i>  <b>fourteen </b>
 
  
- <a href="https://bulletsiero.straw.page/">straw</a> : <a href="https://mychemicalromance.atabook.org/">ata</a>
+ <a href="https://demolovers.straw.page/">straw</a> : <a href="https://mychemicalromance.atabook.org/">ata</a>
 <br><a href="https://linktr.ee/weezerus">linktree</a><br>
 <br>
 <br>
