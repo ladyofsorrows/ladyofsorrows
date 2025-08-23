@@ -2,8 +2,8 @@
  <img src='https://files.catbox.moe/l1jbet.webp' title='skylines and turnstiles'
 
    <br>︶︶︶ † ︶︶︶<br>
-<b>FRANKIE</b> : pencey<br>
-   she<i>him</i>  <b>fourteen </b>
+<b>PENCEY</b> : mikey<br>
+   <a href="https://pronouns.cc/@blackparade/">he<i>him</i></a> , <b>fourteen </b>
 
  
  <a href="https://demolovers.straw.page/">straw</a> : <a href="https://mychemicalromance.atabook.org/">ata</a>
