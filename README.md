@@ -1,7 +1,7 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/l1jbet.webp' title='skylines and turnstiles'
+ <img src='https://files.catbox.moe/ci2pjb.webp' title='sit. stay. beg.'
 
-   <br>︶︶︶ † ︶︶︶<br>
+ <br>︶︶︶ ♱ ︶︶︶<br>
 <b>PENCEY</b> : mikey<br>
    <a href="https://pronouns.cc/@blackparade/">he<i>him</i></a> , <b>fourteen </b>
 
