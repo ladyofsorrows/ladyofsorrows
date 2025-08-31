@@ -6,7 +6,7 @@
    <a href="https://pronouns.cc/@blackparade/">he<i>him</i></a> , <b>fourteen </b>
 
  
- <a href="https://mcmillinbug.straw.page/">straw</a> : <a href="https://mychemicalromance.atabook.org/">ata</a>
+ <a href="https://rentry.co/glitterybass">rentry</a> : <a href="https://mychemicalromance.atabook.org/">ata</a>
 <br><a href="https://www.last.fm/user/weezerus">lastfm</a><br>
 <br>
 <br>
