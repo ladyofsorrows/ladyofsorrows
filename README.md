@@ -2,7 +2,7 @@
  <img src='https://files.catbox.moe/ci2pjb.webp' title='sit. stay. beg.'
 
  <br>︶︶︶ ♱ ︶︶︶<br>
-<b>PENCEY</b> : mikey<br>
+<b>MICHAEL</b> : pencey<br>
    <a href="https://pronouns.cc/@blackparade/">he<i>him</i></a> , <b>fourteen </b>
 
  
