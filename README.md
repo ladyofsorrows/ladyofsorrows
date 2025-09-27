@@ -2,7 +2,7 @@
  <img src='https://files.catbox.moe/21n9sj.webp' title='BLUEHAIR'
 
  <br>︶︶︶ ♱ ︶︶︶<br>
-<b>MICHAEL</b> : pencey<br>
+<b>MICHAEL</b> : mikey<br>
    <a href="https://pronouns.cc/@blackparade/">he<i>him</i></a> , <b>fifteen</b>
 
  
