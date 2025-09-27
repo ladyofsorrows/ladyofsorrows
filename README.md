@@ -1,5 +1,5 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/w0zzdw.webp' title='black parade'
+ <img src='https://files.catbox.moe/21n9sj.webp' title='BLUEHAIR'
 
  <br>︶︶︶ ♱ ︶︶︶<br>
 <b>MICHAEL</b> : pencey<br>
