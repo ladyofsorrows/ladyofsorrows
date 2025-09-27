@@ -1,9 +1,9 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/cdcp17.webp' title='black parade'
+ <img src='https://files.catbox.moe/w0zzdw.webp' title='black parade'
 
  <br>︶︶︶ ♱ ︶︶︶<br>
 <b>MICHAEL</b> : pencey<br>
-   <a href="https://pronouns.cc/@blackparade/">he<i>him</i></a> , <b>fourteen </b>
+   <a href="https://pronouns.cc/@blackparade/">he<i>him</i></a> , <b>fifteen</b>
 
  
  <a href="https://rentry.co/glitterybass">rentry</a> : <a href="https://mychemicalromance.atabook.org/">ata</a>
