@@ -2,7 +2,7 @@
  <img src='https://files.catbox.moe/lbfra6.webp' title='cheerard ,, art by me'
 
  <br>︶︶︶ ♱ ︶︶︶<br>
-<b>MICHAEL</b> : mike<br>
+<b>MICHAEL</b> : mikey<br>
    <a href="https://pronouns.cc/@blackparade/">he<i>him</i></a> , <b>fifteen</b>
 
  
