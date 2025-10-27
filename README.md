@@ -1,8 +1,8 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/21n9sj.webp' title='BLUEHAIR'
+ <img src='https://files.catbox.moe/lbfra6.webp' title='cheerard ,, art by me'
 
  <br>︶︶︶ ♱ ︶︶︶<br>
-<b>MICHAEL</b> : mikey<br>
+<b>MICHAEL</b> : mike<br>
    <a href="https://pronouns.cc/@blackparade/">he<i>him</i></a> , <b>fifteen</b>
 
  
