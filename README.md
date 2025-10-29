@@ -1,5 +1,5 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/lbfra6.webp' title='cheerard ,, art by me'
+ <img src='https://files.catbox.moe/ogvu15.webp' title='cheerard ,, art by me'
 
  <br>︶︶︶ ♱ ︶︶︶<br>
 <b>MICHAEL</b> : mikey<br>
