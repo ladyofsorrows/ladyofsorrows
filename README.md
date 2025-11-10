@@ -12,4 +12,4 @@
 <br>
 ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31svh3j6tbamubnmzunej76fut3q&redirect=true][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31svh3j6tbamubnmzunej76fut3q&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=000000&bar_color_cover=false)
 
-
+![](https://komarev.com/ghpvc/?username=partypoisoned&color=9c1a11&label=eyes)
