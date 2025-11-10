@@ -3,7 +3,7 @@
 
  <br>︶︶︶ ♱ ︶︶︶<br>
 <b>MICHAEL</b> : mikey<br>
-   <a href="https://pronouns.cc/@blackparade/">he<i>him</i></a> , <b>fifteen</b>
+   <a href="https://pronouns.cc/@partypoisoned/">he<i>him</i></a> , <b>fifteen</b>
 
  
  <a href="https://rentry.co/glitterybass">rentry</a> : <a href="https://mychemicalromance.atabook.org/">ata</a>
